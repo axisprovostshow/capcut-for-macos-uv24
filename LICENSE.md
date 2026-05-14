@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS updated Automation: shortcut-customization & echo-removal offers the most advanced CapCut for macOS automation, with shortcut-customization and echo-removal.
 
 
 
